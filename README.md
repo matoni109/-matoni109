@@ -2,7 +2,7 @@
 
 **About me :telescope:**
 
-I'm a 39yo software engineer based in Melbourne :australia:
+I'm a 39yo software engineer based in Melbourne, originally from Perth :australia:
 
 I have been in the B2B Sales space for 15+ years, which has made me very attentive, understanding to customer needs and adapting in a fast moving environment.
 
