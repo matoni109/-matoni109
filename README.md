@@ -10,7 +10,7 @@ I have always been curious about the tech industry and I recently started my jou
 
 When I am not coding, I love cycling :bicyclist:, traveling :earth_africa: and good coffee :coffee:.
 
-I am currently working in the B2B Sales sector. I am also open to discuss opportunities as a Junior Software Developer, within a team that builds great tech products and with a strong positive social impact.
+I am currently working in the B2B Sales sector. I am also open to discuss opportunities as a Junior Software Developer, I'm most interested in working in a team environment, striving together to solve problems and learn along the way.
 
 **How to reach me :mailbox:**
 
