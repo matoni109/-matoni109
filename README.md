@@ -16,4 +16,4 @@ I am currently working in the B2B Sales sector. I am also open to discuss opport
 
 I will be very happy to catch up with you around a beer :beer: or a coffee :coffee:
 
-You can contact me through my [email](mailto:chris@wadespace.net) or visit my [linkedin](https://www.linkedin.com/in/chris-wade-59690959/).
+You can contact me through my [email](mailto:chris.wade@hey.com), visit my [linkedin](https://www.linkedin.com/in/chris-wade-59690959/), or visit my [personal blog](https://chriswade.codes/posts).
