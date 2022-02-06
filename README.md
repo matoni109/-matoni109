@@ -10,7 +10,7 @@ I have always been curious about the tech industry and I recently started my jou
 
 When I am not coding, I love cycling :bicyclist:, traveling :earth_africa: and good coffee :coffee:.
 
-I am currently working as at [DiscoLabs](https://www.discolabs.com/) and enrolled in their Junior Engineer Academy ( J.E.A ), I'm most interested in working in a team environment, striving together to solve problems and learn along the way.
+I am currently working at [DiscoLabs](https://www.discolabs.com/) and enrolled in their Junior Engineer Academy ( J.E.A ), I'm most interested in working in a team environment, striving together to solve problems and learn along the way.
 
 **How to reach me :mailbox:**
 
